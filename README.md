@@ -59,3 +59,6 @@ Judlup.
 [@TryCatch.tv](https://www.tiktok.com/@trycatch.tv)
 
 [Linktr.ee](https://linktr.ee/trycatch.tv)
+
+
+Gustavo Osorio - 2018010101
